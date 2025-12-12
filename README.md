@@ -1,6 +1,6 @@
 📄 Touch PAK! – Privacy Policy
 
-Last updated: 2025
+Last updated: 12.12.2025
 
 This Privacy Policy explains how the Touch PAK! mobile game handles user information and privacy.
 
