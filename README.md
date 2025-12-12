@@ -55,7 +55,7 @@ Any changes will be published on this page.
 📩 Contact
 If you have any questions about this Privacy Policy, please contact:
 
-📧 Email: mertqt.dev@gmail.com
+📧 Email: mertrizakaya@gmail.com
 (Use a real and reachable email address.)
 
 ✅ Consent
